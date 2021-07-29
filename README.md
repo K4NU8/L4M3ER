@@ -17,3 +17,5 @@
 ███████▄░░░░░░░░░░░▄███████
 ██████████▄▄▄▄▄▄▄██████████
 ███████████████████████████
+
+⚡ RECOMENDO ACESSAR PELO PC POIS CÓDIGOS EM ASCII FICHA RUIM PRA VER NO CELULAR
